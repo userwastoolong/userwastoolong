@@ -1,6 +1,6 @@
 ## welcome to my github page
 
-![hippo]([https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif])
+![hippo](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmR3Y3dzcm9lZTEyMzB4bjFjb2F2eW01dnFjYXlvdW01NmRxaW96YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/h3yLXBObz9WlTs4HaE/giphy.gif)
 
 not entierly sure how github works...
 
@@ -9,6 +9,8 @@ might be offtab or doing something else, esp if i have the "away" icon ingame
 interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone
 
 check my carrd for more info
+
+![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3c4b3FqaXNvbXl1b21vZWZ5ZHV4ZmF4Ym1rZzM1ZGxnaDZiNGlyZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/FufO0vWPnYA8XA5a63/giphy.gif)
 <!--
 **userwastoolong/userwastoolong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
