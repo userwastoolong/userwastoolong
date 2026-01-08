@@ -1,5 +1,7 @@
 ## welcome to my github page
 
+![hippo]([https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif])
+
 not entierly sure how github works...
 
 might be offtab or doing something else, esp if i have the "away" icon ingame
