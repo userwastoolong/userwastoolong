@@ -1,5 +1,12 @@
-## Hi there 👋
+## welcome to my github page
 
+not entierly sure how github works...
+
+might be offtab or doing something else, esp if i have the "away" icon ingame
+
+interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone
+
+check my carrd for more info
 <!--
 **userwastoolong/userwastoolong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
