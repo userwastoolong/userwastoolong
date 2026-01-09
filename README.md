@@ -10,6 +10,9 @@ not entierly sure how github works...
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
 </p>
 <p align=center>
+sign my ata pls
+</p>
+<p align=center>
 c+h freely!! (unless i'm w my boyfriend)
 </p>
 <p align=center>
