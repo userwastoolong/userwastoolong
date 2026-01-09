@@ -6,6 +6,8 @@ might be offtab or doing something else, esp if i have the "away" icon ingame
 
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
 
+c+h freely!! (unless i'm w my boyfriend)
+
 check my carrd for more info
 
 big fat dni for adminvirus shippers
