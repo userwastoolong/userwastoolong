@@ -1,5 +1,20 @@
 ## welcome to my github page
-
+<i>i <del>sew</del> the final <b>thread,</b></i>
+<p align=center>
+i <del>knit</del> it <i><b>once again</b></i>
+</p>
+<p align=right>
+<b>i <del>patch</del> the <i> <u>broken</u> ends,</i> </b>
+</p>
+<p align=center>
+<i>what more can i do?</i>
+</p>
+<i> <del>cut</del> you off with a </i> <b>smile,</b>
+<p align=right>
+making <b>distance</b>, while laughing <i>your way</i>
+</p>
+<h3 align=center> but, could this be okay…? </h3>
+  
 <p align=center>
 not entierly sure how github works...
 </p>
