@@ -1,4 +1,5 @@
 ## welcome to my github page
+
 <p align=center>
 not entierly sure how github works...
 </p>
@@ -13,6 +14,9 @@ c+h freely!! (unless i'm w my boyfriend)
 </p>
 <p align=center>
 check my carrd for more info
+</p>
+<p align=center>
+  i'm 17, dni if that makes you uncomfy
 </p>
 <p align=center>
 big fat dni for adminvirus shippers
