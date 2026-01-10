@@ -25,13 +25,13 @@ not entierly sure how github works...
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
 </p>
 <p align=center>
-sign my ata pls
+generally i wont accept friend reqs unless we talked a little bit first, sorry 😔
 </p>
 <p align=center>
 c+h freely!! (unless i'm w my boyfriend)
 </p>
 <p align=center>
-check my carrd for more info
+sign my ata pls and check my carrd for more info
 </p>
 <p align=center>
   i'm 17, dni if that makes you uncomfy
