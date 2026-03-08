@@ -19,7 +19,7 @@ making <b>distance</b>, while laughing <i>your way</i>
 not entierly sure how github works...
 </p>
 <p align=center>
-🟢/LF chat/rp -> interact pls!! ill reply immediately probably  🌙 -> offtab/working on something else, w2i but it might take me a while to see it  ⛔️ -> busy with something else, probably afk in-game, most likely won't reply or im w my bf and i dont want to be disturbed
+🟢/LF chat/rp -> interact pls!! ill reply immediately probably  🌙 -> offtab/working on something else, w2i but it might take me a while to see it  ⛔️ -> busy with something else, probably afk in-game, most likely won't reply
 </p>
 <p align=center>
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
@@ -28,7 +28,7 @@ pls interact!! i like meeting new people, im just a little too anxious (and soci
 generally i wont accept friend reqs unless we talked a little bit first, sorry 😔
 </p>
 <p align=center>
-c+h freely!! (unless i'm w my boyfriend)
+c+h freely!!
 </p>
 <p align=center>
 sign my ata pls and check my carrd for more info
