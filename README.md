@@ -23,12 +23,31 @@ not entierly sure how github works...
 </p>
 <p align=center>
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
+im fine with anyships , but heres some of my personal favs (countryhumans):
+swissaus, robul, rohun, lietpol, swissaus again (i really love swissaus), gerita?? anyone??, anyship w turkey i just really love turkey, uhhh what else, think of any hetalia ship and i probably ship it, roserb, swissaus again, fruk, h*lland x rom (i cannot come up with a proper ship name but trust me on this), fyi i really hate (/j) the netherlands, dont think im over the 2024 uefa
+</p>
+<p align=center>
+heres some of my countryhumans family hcs if anyones interested... ok? ok.
+<br>
+rus, ukr, belarus - all siblings
+<br>
+rom , moldova -siblings
+<br>
+baltics - all siblings
+<br>
+uk, usa - parent/child
+<br>
+france, canada - same thing ( usa and canada are fruk divorce children)
+<br>
+switzerland, liechtenstein - also siblings
+<br>
+a lot of these r hetalia inspired (if that wasnt obvious enough)
 </p>
 <p align=center>
 generally i wont accept friend reqs unless we talked a little bit first, sorry 😔
 </p>
 <p align=center>
-c+h freely!!
+c+h freely!! you dont even have to ask
 </p>
 <p align=center>
 sign my ata pls and check my carrd for more info
