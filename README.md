@@ -23,6 +23,10 @@ not entierly sure how github works...
 </p>
 <p align=center>
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
+  <br>
+i also REALLY love project moon games, i havent played lobcorp at all, dipped my toes in ruina (no spoilers pls) but im actively playing limbus (at 2nd intervallo 6.5 as of writing this) so again pls no spoilers ty
+</p>
+<p align=center>
 im fine with anyships , but heres some of my personal favs (countryhumans):
 swissaus, robul, rohun, lietpol, swissaus again (i really love swissaus), gerita?? anyone??, anyship w turkey i just really love turkey, uhhh what else, think of any hetalia ship and i probably ship it, roserb, swissaus again, fruk, h*lland x rom (i cannot come up with a proper ship name but trust me on this), fyi i really hate (/j) the netherlands, dont think im over the 2024 uefa
 </p>
