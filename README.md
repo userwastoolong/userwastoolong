@@ -32,6 +32,9 @@ im fine with anyships as long as its not anything weird lol
 i LOVE gregor, johann and hohenheim; JOHANN WILL COME BACK, HE IS ALIVE TRUST
 </p>
 <p align=center>
+heathgreg nation where we at???
+</p>
+<p align=center>
 generally i wont accept friend reqs unless we talked a little bit first, sorry 😔
 </p>
 <p align=center>
