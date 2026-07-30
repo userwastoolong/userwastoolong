@@ -24,28 +24,12 @@ not entierly sure how github works...
 <p align=center>
 pls interact!! i like meeting new people, im just a little too anxious (and socially awkward) to really walk up to anyone, i promise im pretty talkative once you get to know me (and im really cool trust)
   <br>
-i also REALLY love project moon games, i havent played lobcorp at all, dipped my toes in ruina (no spoilers pls) but im actively playing limbus (at 2nd intervallo 6.5 as of writing this) so again pls no spoilers ty
+i also REALLY love project moon games, finished limbus (eagerly waiting for canto 10, currently dipping my toes in ruina and lobcorp so bare with me
+<p align=center>
+im fine with anyships as long as its not anything weird lol
 </p>
 <p align=center>
-im fine with anyships , but heres some of my personal favs (countryhumans):
-swissaus, robul, rohun, lietpol, swissaus again (i really love swissaus), gerita?? anyone??, anyship w turkey i just really love turkey, uhhh what else, think of any hetalia ship and i probably ship it, roserb, swissaus again, fruk, h*lland x rom (i cannot come up with a proper ship name but trust me on this), fyi i really hate (/j) the netherlands, dont think im over the 2024 uefa
-</p>
-<p align=center>
-heres some of my countryhumans family hcs if anyones interested... ok? ok.
-<br>
-rus, ukr, belarus - all siblings
-<br>
-rom , moldova -siblings
-<br>
-baltics - all siblings
-<br>
-uk, usa - parent/child
-<br>
-france, canada - same thing ( usa and canada are fruk divorce children)
-<br>
-switzerland, liechtenstein - also siblings
-<br>
-a lot of these r hetalia inspired (if that wasnt obvious enough)
+i LOVE gregor, johann and hohenheim; JOHANN WILL COME BACK, HE IS ALIVE TRUST
 </p>
 <p align=center>
 generally i wont accept friend reqs unless we talked a little bit first, sorry 😔
