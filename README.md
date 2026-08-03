@@ -9,7 +9,8 @@
   i'm a HUUUGE gregor, johann and hohenheim fan
    ₊ ⊹ multishipper, i love rarepairs
     heathgreg, rodtis and johannheim enthusiast
-   i'll take this as an opportunity to warn that my carrd is very outdated, maybe one day i'll remake it
+   i'll take this as an opportunity to warn that my carrd is very outdated
+   maybe one day i'll remake it
 </pre>
 <img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif">
 </div>
