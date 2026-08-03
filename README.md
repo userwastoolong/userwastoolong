@@ -1,7 +1,5 @@
 <div align="center">
 <h1> insert profile title here idk </h1>
-<img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif>
-    
 <pre>
     𑣲. hi hi, i'm sage 💪 he/him only pls thanks
   currently suffering from a really bad project moon brainrot
