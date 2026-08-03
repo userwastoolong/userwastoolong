@@ -1,12 +1,11 @@
 <div align="center">
 <h1> insert profile title here idk </h1>
 <img src="https://media1.tenor.com/m/izwFlzFHeLwAAAAC/limbus-company-meme.gif" width="25%" align="right" padding="10%" />
-<img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif"> <img src="https://i.pinimg.com/1200x/ea/d7/a7/ead7a7bf5aa1b85a29782dd2e8ffe108.jpg" height="90" />
 <br>
 <pre>
     𑣲. hi hi, i'm sage 💪 he/him only pls thanks
   currently suffering from a really bad project moon brainrot
-  i'm a HUUUGE gregor, johann and hohenheim fan
+  i'm a HUUUGE gregor, johann and hohenheim fan <img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif"> <img src="https://u.cubeupload.com/userwastoolong/AdobeExpressfile.png" height="90" />
    ₊ ⊹ multishipper, i love rarepairs
     heathgreg, rodtis and johannheim enthusiast
    i'll take this as an opportunity to warn that my carrd is very outdated
