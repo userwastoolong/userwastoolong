@@ -5,7 +5,6 @@
   currently suffering from a really bad project moon brainrot
   i'm a HUUUGE gregor, johann and hohenheim fan
    ₊ ⊹ multishipper, i love rarepairs
-  
 </pre>
   
 </div>
