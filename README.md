@@ -1,6 +1,11 @@
 <div align="center">
 <h1> insert profile title here idk </h1>
-testest
+<pre>
+    𑣲. hi hi, i'm sage 💪
+  currently suffering from a really bad project moon brainrot
+  i'm a HUUUGE gregor, johann and hohenheim fan
+  
+</pre>
   
 </div>
 
