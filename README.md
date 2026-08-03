@@ -1,5 +1,5 @@
 ## welcome to my github page
-<div style="margin-right: 20%; margin-left: 20%">
+<div style="margin-right: 40%; margin-left: 40%">
 <i>i <del>sew</del> the final <b>thread,</b></i>
 <p align=center>
 i <del>knit</del> it <i><b>once again</b></i>
