@@ -1,4 +1,11 @@
 ## welcome to my github page
+<style>
+div {
+    margin-right: 20%;
+    margin-left: 20%;
+}
+</style>
+<div>
 <i>i <del>sew</del> the final <b>thread,</b></i>
 <p align=center>
 i <del>knit</del> it <i><b>once again</b></i>
@@ -14,7 +21,7 @@ i <del>knit</del> it <i><b>once again</b></i>
 making <b>distance</b>, while laughing <i>your way</i>
 </p>
 <h3 align=center> but, could this be okay…? </h3>
-  
+</div>
 <p align=center>
 not entierly sure how github works...
 </p>
