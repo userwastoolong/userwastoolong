@@ -1,6 +1,6 @@
 ## this my house!! entry please
 
-<div style="align:center;">
+<div align="center">
 testest
   
 </div>
