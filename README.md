@@ -12,6 +12,6 @@
    i'll take this as an opportunity to warn that my carrd is very outdated
    maybe one day i'll remake it
 </pre>
-<img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif"> <img src="https://media1.tenor.com/m/qz8BUZJjA1oAAAAC/limbus-company-hohenheim.gif"> <img src="https://media1.tenor.com/m/Y1usJPHQJzsAAAAd/hohenheim-hohenheim-lcb.gif">
+<img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif" height="50" /> <img src="https://media1.tenor.com/m/qz8BUZJjA1oAAAAC/limbus-company-hohenheim.gif" height="50" /> <img src="https://media1.tenor.com/m/Y1usJPHQJzsAAAAd/hohenheim-hohenheim-lcb.gif" height="50" />
 </div>
 <!--
