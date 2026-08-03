@@ -1,6 +1,6 @@
 <div align="center">
 <h1> insert profile title here idk </h1>
-<img src="https://media1.tenor.com/m/izwFlzFHeLwAAAAC/limbus-company-meme.gif" width="25%" align="right" />
+<img src="https://media1.tenor.com/m/izwFlzFHeLwAAAAC/limbus-company-meme.gif" width="25%" align="right" padding="10%" />
 <img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif">
 <br>
 <pre>
