@@ -1,5 +1,5 @@
 ## welcome to my github page
-<div style="margin-right: 40%; margin-left: 40%">
+<div style="margin: 20px; border: 1px solid #ccc; padding: 10px;">
 <i>i <del>sew</del> the final <b>thread,</b></i>
 <p align=center>
 i <del>knit</del> it <i><b>once again</b></i>
@@ -16,6 +16,7 @@ making <b>distance</b>, while laughing <i>your way</i>
 </p>
 <h3 align=center> but, could this be okay…? </h3>
 </div>
+
 <p align=center>
 not entierly sure how github works...
 </p>
@@ -53,16 +54,3 @@ big fat dni for adminvirus shippers
 
 ![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3c4b3FqaXNvbXl1b21vZWZ5ZHV4ZmF4Ym1rZzM1ZGxnaDZiNGlyZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/FufO0vWPnYA8XA5a63/giphy.gif)
 <!--
-**userwastoolong/userwastoolong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
