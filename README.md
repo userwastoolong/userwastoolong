@@ -1,7 +1,7 @@
 <div align="center">
 <h1> insert profile title here idk </h1>
 <img src="https://media1.tenor.com/m/izwFlzFHeLwAAAAC/limbus-company-meme.gif" width="25%" align="right" padding="10%" />
-<img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif">
+<img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif"> <img src="https://i.pinimg.com/1200x/ea/d7/a7/ead7a7bf5aa1b85a29782dd2e8ffe108.jpg" height="90" />
 <br>
 <pre>
     𑣲. hi hi, i'm sage 💪 he/him only pls thanks
@@ -12,7 +12,6 @@
    i'll take this as an opportunity to warn that my carrd is very outdated
    maybe one day i'll remake it
 </pre>
- ''' [![Repo](https://i.pinimg.com/1200x/ea/d7/a7/ead7a7bf5aa1b85a29782dd2e8ffe108.jpg)](https://www.instagram.com/userwastoolong/) ''' st.markdown("<br>",unsafe_allow_html=True)
 <img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif" height="90" /> <img src="https://media1.tenor.com/m/qz8BUZJjA1oAAAAC/limbus-company-hohenheim.gif" height="90" /> <img src="https://media1.tenor.com/m/Y1usJPHQJzsAAAAd/hohenheim-hohenheim-lcb.gif" height="90" />
 </div>
 <!--
