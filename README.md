@@ -1,7 +1,7 @@
 <div align="center">
-<img src="https://u.cubeupload.com/userwastoolong/AdobeExpressfile.png" height="90" />
+<img src="https://u.cubeupload.com/userwastoolong/AdobeExpressfile.png" height="90" /> <img src="https://u.cubeupload.com/userwastoolong/675ce331f78917c6b951.png" height="90" /> <img src="https://u.cubeupload.com/userwastoolong/67efb87dae951542d24b.png" height="90" /> <img src="https://u.cubeupload.com/userwastoolong/e41924883d7529b2f791.png" height="90" />
 <br>
-<h1> insert profile title here idk </h1> <img src="https://u.cubeupload.com/userwastoolong/AdobeExpressfile.png" height="90" />
+<h1> insert profile title here idk </h1> 
 <img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif"> 
 <br>
 <pre>
