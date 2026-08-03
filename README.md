@@ -1,4 +1,5 @@
 ## welcome to my github page
+<html>
 <div>
 <i>i <del>sew</del> the final <b>thread,</b></i>
 <p align=center>
@@ -58,6 +59,7 @@ div {
     margin-left: 20%;
 }
 </style>
+</html>
 <!--
 **userwastoolong/userwastoolong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
