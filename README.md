@@ -1,6 +1,5 @@
 ## welcome to my github page
-<html>
-<div>
+<div style="margin-right: 20%; margin-left: 20%">
 <i>i <del>sew</del> the final <b>thread,</b></i>
 <p align=center>
 i <del>knit</del> it <i><b>once again</b></i>
@@ -53,13 +52,6 @@ big fat dni for adminvirus shippers
 </p>
 
 ![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3c4b3FqaXNvbXl1b21vZWZ5ZHV4ZmF4Ym1rZzM1ZGxnaDZiNGlyZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/FufO0vWPnYA8XA5a63/giphy.gif)
-<style>
-div {
-    margin-right: 20%;
-    margin-left: 20%;
-}
-</style>
-</html>
 <!--
 **userwastoolong/userwastoolong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
