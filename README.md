@@ -31,10 +31,10 @@
     <img src="https://64.media.tumblr.com/a4b88d98d741e69f7ea497edf093a247/266cae12e2818f3b-4b/s500x750/68710e20d5d6c5e65641fa730d19d04ba83e14d7.gifv" height="50" />
     <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ad7a1acc-27f0-4c6f-abd8-2d77b730448e/dhovbnj-28db502f-dc0f-4b21-a8fd-856a290d0879.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hZDdhMWFjYy0yN2YwLTRjNmYtYWJkOC0yZDc3YjczMDQ0OGUvZGhvdmJuai0yOGRiNTAyZi1kYzBmLTRiMjEtYThmZC04NTZhMjkwZDA4NzkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.rgH4ivx8xWqQ65a0ZlqoDEC6vapLqPDH0Kf50mGl5BY">
     <br>limbus blinkies are from ratterchatter on tumblr<br>
-    <img src="https://64.media.tumblr.com/4ef1dedc71703866bcd809733db57dd8/5551bba5833ac8dc-07/s540x810/b71644106fe632e5371751c5de09290ed181acbf.gifv" height="50" /> 𖹭 
-    <img src="https://64.media.tumblr.com/6b491880a260a2a2583f24791270b5a6/5551bba5833ac8dc-c4/s540x810/4a39232ae6af7a2356cb7a491a14e449f2d87763.gifv" height="50" />
-    <img src="https://64.media.tumblr.com/9cc3224bacd687c3b7df6a7bc6796de4/5551bba5833ac8dc-29/s540x810/42d9879a63f0012e485738a733a1ff48a671b802.gifv" height="50" /> 𖹭 
-    <img src="https://64.media.tumblr.com/2b08d69fb630fcad4ddc8b0c47c86d30/5551bba5833ac8dc-a1/s540x810/4bca988b60353f2e419a687a0f8ecb75467d801c.gifv" height="50" />
+    <img src="https://64.media.tumblr.com/4ef1dedc71703866bcd809733db57dd8/5551bba5833ac8dc-07/s540x810/b71644106fe632e5371751c5de09290ed181acbf.gifv" height="30" /> 𖹭 
+    <img src="https://64.media.tumblr.com/6b491880a260a2a2583f24791270b5a6/5551bba5833ac8dc-c4/s540x810/4a39232ae6af7a2356cb7a491a14e449f2d87763.gifv" height="30" />
+    <img src="https://64.media.tumblr.com/9cc3224bacd687c3b7df6a7bc6796de4/5551bba5833ac8dc-29/s540x810/42d9879a63f0012e485738a733a1ff48a671b802.gifv" height="30" /> 𖹭 
+    <img src="https://64.media.tumblr.com/2b08d69fb630fcad4ddc8b0c47c86d30/5551bba5833ac8dc-a1/s540x810/4bca988b60353f2e419a687a0f8ecb75467d801c.gifv" height="30" />
 </details>
 </div>
 <!--
