@@ -20,6 +20,7 @@
 <details>
     <summary> gif/stamp collection </summary>
     <img src="https://64.media.tumblr.com/845f5dda0084fe0ef13f01ab49a169d7/266cae12e2818f3b-3b/s400x600/86b1bdc2186a6844f7d00039ab23de2767083e9e.gifv">
+    <img src="https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv">
 </details>
 </div>
 <!--
