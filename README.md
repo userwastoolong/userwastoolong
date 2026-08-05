@@ -19,7 +19,7 @@
 <img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif" height="90" /> <img src="https://media1.tenor.com/m/qz8BUZJjA1oAAAAC/limbus-company-hohenheim.gif" height="90" /> <img src="https://media1.tenor.com/m/Y1usJPHQJzsAAAAd/hohenheim-hohenheim-lcb.gif" height="90" />
 <details>
     <summary> gif/stamp collection </summary>
-    <a href="https://64.media.tumblr.com/845f5dda0084fe0ef13f01ab49a169d7/266cae12e2818f3b-3b/s400x600/86b1bdc2186a6844f7d00039ab23de2767083e9e.gifv">
+    <a href="https://64.media.tumblr.com/9e588200c33153d73f090ad8399bac62/266cae12e2818f3b-c6/s100x200/8ce2adbaa04df796240cde5e3587ea4e7437207c.gifv">
 </details>
 </div>
 <!--
