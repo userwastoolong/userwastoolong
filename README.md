@@ -21,8 +21,9 @@
 <details>
     <summary> gif/stamp collection </summary>
     <img src="https://64.media.tumblr.com/845f5dda0084fe0ef13f01ab49a169d7/266cae12e2818f3b-3b/s400x600/86b1bdc2186a6844f7d00039ab23de2767083e9e.gifv" height="50" />
-    <img src="https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv" height="50" />
     <img src="https://64.media.tumblr.com/57d91a462cc357713cdebb46821f6365/266cae12e2818f3b-69/s400x600/0d409e1656fe7126766bb8e9f99b84bde478584a.gifv" height="50" />
+    <br>
+    <img src="https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv" height="50" />
     <br>
     <img src="https://adriansblinkiecollection.neocities.org/stamps/e110.gif"> 
     <img src="https://64.media.tumblr.com/9e588200c33153d73f090ad8399bac62/266cae12e2818f3b-c6/s100x200/8ce2adbaa04df796240cde5e3587ea4e7437207c.gifv">
