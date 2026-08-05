@@ -17,6 +17,7 @@
 <a href="https://userwastoolong.straw.page"> strawpage </a> ・・・ <a href="https://userwastoolong.atabook.org/"> atabook </a> ・・・ <a href="https://www.instagram.com/userwastoolong/"> instagram </a>
 <br><br>
 <img src="https://media.tenor.com/ISfkPoT8rNAAAAAi/gregor-limbus.gif" height="90" /> <img src="https://media1.tenor.com/m/qz8BUZJjA1oAAAAC/limbus-company-hohenheim.gif" height="90" /> <img src="https://media1.tenor.com/m/Y1usJPHQJzsAAAAd/hohenheim-hohenheim-lcb.gif" height="90" />
+<hr>
 <details>
     <summary> gif/stamp collection </summary>
     <img src="https://64.media.tumblr.com/845f5dda0084fe0ef13f01ab49a169d7/266cae12e2818f3b-3b/s400x600/86b1bdc2186a6844f7d00039ab23de2767083e9e.gifv">
