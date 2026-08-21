@@ -5,7 +5,7 @@
 <img src="https://media1.tenor.com/m/izwFlzFHeLwAAAAC/limbus-company-meme.gif" width="22%" align="right" />
 <img src="https://u.cubeupload.com/userwastoolong/blinkiesCafegu.gif"> 
 <br>
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+▶︎•၊၊||၊|။|||||။၊|။•
 <br>
 <pre>
     𑣲. hi hi, i'm sage 💪 he/him only pls thanks
