@@ -7,12 +7,12 @@
 <br>
 <pre>
     𑣲. hi hi, i'm sage 💪 he/him only pls thanks
-    i might sound a little dry at times but that's because i find it
-    difficult to portray my tone through text
-  currently suffering from a really bad project moon brainrot
+    ⤷ ゛i might sound a little dry at times but that's because i find it
+    difficult to portray my tone through text  ˎˊ˗
+  .ᐟ.ᐟ currently suffering from a really bad project moon brainrot
   i'm a HUUUGE gregor, johann and hohenheim fan 
    ₊ ⊹ multishipper, i love rarepairs
-    heathgreg, rodtis and johannheim enthusiast
+    ᛝ heathgreg, rodtis and johannheim enthusiast ᛝ
    i'll take this as an opportunity to warn that my carrd is very outdated
    maybe one day i'll remake it
 </pre>
