@@ -12,7 +12,7 @@
   .ᐟ.ᐟ currently suffering from a really bad project moon brainrot
   i'm a HUUUGE gregor, johann and hohenheim fan 
    ₊ ⊹ multishipper, i love rarepairs
-    ᛝ heathgreg, rodtis and johannheim enthusiast ᛝ
+   <b> ᛝ heathgreg, rodtis and johannheim enthusiast ᛝ </b>
    i'll take this as an opportunity to warn that my carrd is very outdated
    maybe one day i'll remake it
 </pre>
